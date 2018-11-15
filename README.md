@@ -23,4 +23,4 @@ Right, you know how the weather is in whatever city... So I'm starting building 
 Then I tried sticks, it's wood, so should be alright, innit? In order to do that, I had to cut some trees, and as everybody knows, cutting trees is probably one of the cause of global warming...
 Anyhow, because of that previous thing, I received a fireball right next to my house, buring everything down, no luck again right?
 
-I finally settled for something solid (yeah right, just as the solid principles... you engineers always love a good laugh do you?).
+I finally settled for something solid (yeah right, just as the solid principles... you engineers always love a good laugh do you?). This is now the end of this chapter, with a good home for good people as we would say in Texas! But is brick really a good choice? I know you can't bear the thrill, but keep up, and full disclaimer if you want to know the rest of that story TL;DR, just check the Three little pigs story, it's kind of my inspiration here!
