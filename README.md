@@ -20,4 +20,4 @@ The land is on whatever lane, whatever city in whatever country. This might be q
 
 Right, you know how the weather is in whatever city... So I'm starting building my home using straw, but the wind has blown everything off.
 
-Then I tried sticks, it's wood, so should be alright, innit?
+Then I tried sticks, it's wood, so should be alright, innit? In order to do that, I had to cut some trees, and as everybody knows, cutting trees is probably one of the cause of global warming...
