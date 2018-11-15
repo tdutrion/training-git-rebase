@@ -9,3 +9,7 @@ During your work day, you probably get tasks, features, assigned to you. In this
 Unfortunately, life is so unfair... And some of your coworkers are starting their assigned feature after you and finishing before! Not that you are not
 fast or good enough, it's just that humans are supposed to be equals, tasks length and complexity are not! Also, as the americans would say... \*\*\*\* happens,
 so your messages are not so clean now, and you're book is getting unreadable, which is annoying.
+
+## Chapter 1: building my house
+
+I have a pretty good idea of how to build my house. The spared money I have should be more than enough, my only issue is that I don't have a land yet.
