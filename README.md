@@ -13,3 +13,6 @@ so your messages are not so clean now, and you're book is getting unreadable, wh
 ## Chapter 1: building my house
 
 I have a pretty good idea of how to build my house. The spared money I have should be more than enough, my only issue is that I don't have a land yet.
+
+So let's imagine I own that land, and I'm ready to start bbuilding my house.
+
